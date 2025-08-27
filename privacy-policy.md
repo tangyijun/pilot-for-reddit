@@ -1,3 +1,5 @@
+## Privacy Policy for Pilot for Reddit
+
 Last Updated: August 27, 2025
 
   Welcome to Pilot for Reddit ("we," "us," or "our"). Our mission is to be your copilot across the Reddit universe, starting
